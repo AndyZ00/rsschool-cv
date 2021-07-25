@@ -16,7 +16,7 @@ Engine repair
 
 ## Career Summary
 + Master with over 1 year 
-+ Good at establishing rapport with people from diverse backgrounds	
++ Tactful, hardworking, friendly, independent, I take a responsible approach to work.	
 
 ## Skills
 * HTML
